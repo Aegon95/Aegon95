@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **akhilgorijavaram@gmail.com**
 
-- ⚡ My dream is to live in **Zurich**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
